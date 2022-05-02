@@ -1,0 +1,2 @@
+# thegoodproxy
+https://languagetips.net/ 
